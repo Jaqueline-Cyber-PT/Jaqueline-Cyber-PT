@@ -1,5 +1,5 @@
 # 👩🏻‍💻 Jaqueline Moura  
-### 🛡️ Cybersecurity Analyst | Blue Team | SOC  
+### 🛡️ Cybersecurity | Blue Team | SOC  
 
 **`Cybersecurity Specialist Technician – IEFP`**
 
